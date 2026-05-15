@@ -1,4 +1,4 @@
-# 
+# vip NoMachine for PC | NoMachine for Windows Extension | clipboard-sync + custom-branding is the best NoMachine for PC | NoMachine for Windows extension, featuring clipboard-sync
 
 
 
